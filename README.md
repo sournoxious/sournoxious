@@ -7,10 +7,18 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Road+Rage&size=30&color=0E1517&center=true&vCenter=true&width=435&lines=Even+if+you+have%2C+even+if+you+need-;I+don't+mean+to+stare%2C+we+don't+have+to+breed.;We+could+plant+a+house%2C+we+could+build+a+tree!;I+don't+even+care%2C+we+could+have+all+three.)](https://git.io/typing-svg)
 
-<br>
+</h3>
 
 <br>
+
 
 <p align="center">
 <a href="https://sourstuff.straw.pg/">strawpage</a> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
+
+<br>
+
+<br>
+<br>
+<p align="center">
+<img src=https://github.com/sournoxious/sournoxious/blob/05291a5a6877ca868f73da9cd644b237bf5724ce/deadpool.gif width="100">
 </p>
