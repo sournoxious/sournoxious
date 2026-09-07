@@ -5,7 +5,7 @@
 <img align="left" src="https://github.com/sournoxious/-3/blob/6745246a88a4bce62d628236919fb5c64ee97f3b/Untitled2492_20260907032301.PNG" width="350">
 <h3 align="center">
 
-![](https://komarev.com/ghpvc/?username=sournoxious&color=df2124&style=plastic&label=cuties)
+![](https://komarev.com/ghpvc/?username=sournoxious&color=df2124&style=plastic&label=メ)
 
 <br>
 
