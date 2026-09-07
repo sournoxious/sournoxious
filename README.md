@@ -1,3 +1,7 @@
+<img src=https://github.com/sournoxious/sournoxious/blob/48fbd10296e55c7833a2c6177a947d3532ff33b5/reds.gif width="1000">
+
+<br>
+
 <img align="left" src="https://github.com/sournoxious/-3/blob/6745246a88a4bce62d628236919fb5c64ee97f3b/Untitled2492_20260907032301.PNG" width="350">
 <h3 align="center">
 
@@ -13,7 +17,7 @@
 
 
 <p align="center">
-<a href="https://sourstuff.straw.pg/">strawpage</a> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
+<a href="https://sourstuff.straw.pg/">strawpg</a> <img src=https://github.com/sournoxious/sournoxious/blob/3d582bab39e9d414aaf683ab1a7093e1b78f15d5/swords.gif> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
 
 <br>
 
@@ -22,3 +26,7 @@
 <p align="center">
 <img src=https://github.com/sournoxious/sournoxious/blob/05291a5a6877ca868f73da9cd644b237bf5724ce/deadpool.gif width="100">
 </p>
+
+<br>
+
+<img src=https://github.com/sournoxious/sournoxious/blob/48fbd10296e55c7833a2c6177a947d3532ff33b5/reds.gif width="1000">
