@@ -2,7 +2,7 @@
 
 <br>
 
-<img align="left" src="https://github.com/sournoxious/-3/blob/6745246a88a4bce62d628236919fb5c64ee97f3b/Untitled2492_20260907032301.PNG" width="350">
+<img align="left" src="https://github.com/sournoxious/sournoxious/blob/cf9825f98f23ae5ebd9291f9bdbc4dcfdffab598/Untitled2492_20260908162941.PNG" width="350">
 <h3 align="center">
 
 ![](https://komarev.com/ghpvc/?username=sournoxious&color=df2124&style=plastic&label=メ)
