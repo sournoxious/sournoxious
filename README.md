@@ -13,15 +13,19 @@
 
 </h3>
 
-<br>
-
 
 <p align="center">
 <a href="https://sourstuff.straw.pg/">strawpg</a> <img src=https://github.com/sournoxious/sournoxious/blob/3d582bab39e9d414aaf683ab1a7093e1b78f15d5/swords.gif> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
 
 <br>
-
+<details <p align="center">
+<summary> $${\color{#df2124} click }$$  </summary>
 <br>
+I dont roleplay SUPER seriously. but casual rp, for example calling me wade or deadpool n just acting like im the bloke himself, is absolutely okay by me ;D
+I am also a deadpool kin!! shocker!!! idc about doubles, really ^_^
+dni/byi on prnscc (also on strawpage but its smaller)
+
+</details>
 <br>
 <p align="center">
 <img src=https://github.com/sournoxious/sournoxious/blob/c3010cb77e2576fcf5ec0da8ecc3e7a07a7835b1/Untitled2493_20260907171119.PNG width="40">
