@@ -24,7 +24,7 @@
 <br>
 <br>
 <p align="center">
-<img src=https://github.com/sournoxious/sournoxious/blob/05291a5a6877ca868f73da9cd644b237bf5724ce/deadpool.gif width="100">
+<img src=https://github.com/sournoxious/sournoxious/blob/c3010cb77e2576fcf5ec0da8ecc3e7a07a7835b1/Untitled2493_20260907171119.PNG width="40">
 </p>
 
 <br>
