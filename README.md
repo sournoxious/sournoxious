@@ -20,11 +20,11 @@
 <br>
 <details <p align="center">
 <summary> $${\color{#df2124} click }$$  </summary>
+I dont roleplay SUPER seriously.but casual rp, for example calling me wade or deadpool is absolutely okay by me ;D
 <br>
-I dont roleplay SUPER seriously. but casual rp, for example calling me wade or deadpool n just acting like im the bloke himself, is absolutely okay by me ;D
-I am also a deadpool kin!! shocker!!! idc about doubles, really ^_^
-dni/byi on prnscc (also on strawpage but its smaller)
+I am also a deadpool kin!! shocker!!! idc about doubles
 
+dni/byi on prnscc (also on strawpage but it has less info)
 </details>
 <br>
 <p align="center">
