@@ -24,7 +24,9 @@ I dont roleplay SUPER seriously.but casual rp, for example calling me wade or de
 <br>
 I am also a deadpool kin!! shocker!!! idc about doubles
 
-dni/byi on prnscc (also on strawpage but it has less info)
+I really like poolverine and spideypool. 🤤 c+hing as those characters encouraged (platonically)
+
+byi check prnscc please
 </details>
 <br>
 <p align="center">
