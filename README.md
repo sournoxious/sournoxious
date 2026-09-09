@@ -20,13 +20,11 @@
 <br>
 <details <p align="center">
 <summary> $${\color{#df2124} click }$$  </summary>
-I dont roleplay SUPER seriously.but casual rp, for example calling me wade or deadpool is absolutely okay by me ;D
+I dont roleplay SUPER seriously.but casual rp, like just calling me wade or deadpool is okay by me ;D
 <br>
 I am also a deadpool kin!! shocker!!! idc about doubles
 
-I really like poolverine and spideypool. 🤤 c+hing as those characters encouraged (platonically)
-
-byi check prnscc please
+I really like poolverine and spideypool. 🤤 c+hing as those characters encouraged (/p)
 </details>
 <br>
 <p align="center">
