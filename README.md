@@ -20,7 +20,7 @@
 <br>
 <details <p align="center">
 <summary> $${\color{#df2124} click }$$  </summary>
-I dont roleplay SUPER seriously.but casual rp, like just calling me wade or deadpool is okay by me ;D
+calling me wade or deadpool is okay by me ;D
 <br>
 I am also a deadpool kin!! shocker!!! idc about doubles
 
