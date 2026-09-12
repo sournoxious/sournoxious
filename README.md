@@ -15,7 +15,7 @@
 
 
 <p align="center">
-<a href="https://sourstuff.straw.page/">strawpg</a> <img src=https://github.com/sournoxious/sournoxious/blob/3d582bab39e9d414aaf683ab1a7093e1b78f15d5/swords.gif> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
+<a href="https://deadpo0l.straw.page">strawpg</a> <img src=https://github.com/sournoxious/sournoxious/blob/3d582bab39e9d414aaf683ab1a7093e1b78f15d5/swords.gif> <a href="https://pronouns.cc/@soursourstuff">prns.cc</a>
 
 <br>
 <details <p align="center">
